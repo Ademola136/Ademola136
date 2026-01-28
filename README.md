@@ -60,7 +60,9 @@ Soft Skill: Attention to details, critical thinking,clear communication
 
 ## 🔗Let's Connect
 linkedin:  https://www.linkedin.com/in/ademola-adeola-46b617303?utm_source=share_via&utm_content=profile&utm_medium=member_androidk
+
 📧 ademolaabayomi03@gmail.com
+
 📁My project https://github.com/
 
 
